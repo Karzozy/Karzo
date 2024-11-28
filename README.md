@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @ZaiNvz 
+- 👋 Hi, I’m @Karzo 
 - 👀 I’m interested in develop apps and any project that has an impact
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on whatever
 - 📫 How to reach me davidson11102005@gmail.com
-- 😄 Pronouns: ZaiNvz
+- 😄 Pronouns: KiddKarzo
 - ⚡ Fun fact: I play musical instruments
 
 <!---
