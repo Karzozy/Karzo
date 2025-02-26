@@ -2,7 +2,7 @@
 - 👀 I’m interested in develop apps and any project that has an impact
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on whatever
-- 📫 How to reach me davidson11102005@gmail.com
+- 📫 How to reach me davidarias@unicauca.edu.co
 - 😄 Pronouns: KiddKarzo
 - ⚡ Fun fact: I play musical instruments
 
